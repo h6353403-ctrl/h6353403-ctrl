@@ -20,4 +20,8 @@
 
 擅长领域：产品规划 · 用户研究 · 数据分析 · AI 应用
 
+<br>
+
+🌐 个人主页：[https://h6353403-ctrl.github.io/](https://h6353403-ctrl.github.io/)
+
 </div>
